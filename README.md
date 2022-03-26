@@ -1,5 +1,8 @@
 ### Hi there 👋
-<!--
+Aqui  me  puedes encontrar , con trabajos como  Community  Manager.
+-[facebook](romynaalcaraz)
+-[Instagram](@romynaalcaraz)
+
 **romina-1385/romina-1385** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
